@@ -36,7 +36,7 @@
 > * Weekly quizzes, assignments, exams, peer assessments, and final projects.
 >
 > **🏅 Quality & Recognition:**
-> * **Accredited by:**Updating Soon.....
+> * **Accredited by:** Updating Soon.....
 > * **ISO Certified:** 9001 (QMS) | 14001 (EMS) | 21001 (EOMS) | 27001 (ISMS) | 29993 (LSP).
 
 ---
